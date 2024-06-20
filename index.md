@@ -1,5 +1,8 @@
-Here you can say lots of fun things about your site.
+Welcome to my GitHub Blog. 
 
-Maybe say a some things about yourself.
+This is the very first Github Blog I've ever created. 
 
-Or maybe what you plan to blog about.
+To appeal to my interests, it will discuss characters from the Nintendo Switch Game Fire Emblem: Engage.
+
+
+
